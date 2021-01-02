@@ -1,2 +1,2 @@
-# A System Bot By NeverDie , Himalaya .#6697
+# A System Bot By ZeroNux#6697
 # قامد قدن
